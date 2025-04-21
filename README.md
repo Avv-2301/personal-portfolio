@@ -42,6 +42,6 @@ Whether you're a **recruiter**, a **fellow dev**, or just passing through — **
 ## 📫 Let’s Connect!
 
 If something here resonates with you — a **project**, an **idea**, or just a **vibe** — feel free to reach out or connect on  
-**[LinkedIn](#)** • **[Twitter](#)** • Or drop a ⭐ on something you like!
+**[LinkedIn](https://www.linkedin.com/in/akshat-vijayvergiya-3a3174210/)** • Or drop a ⭐ on something you like!
 
 Always down to **collaborate**, **learn**, or **geek out over code**. Let's build something awesome together. 🚀
